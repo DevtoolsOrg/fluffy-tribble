@@ -1,2 +1,2 @@
 Good Day!!
-God afternoon
+God afternoon!
